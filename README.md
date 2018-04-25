@@ -1,7 +1,7 @@
 [无赖乐华，人怨天怒](https://weibo.com/ttarticle/p/show?id=2309404230908143095256#_0)
 =====
-
-
+<br>
+<br>
 ![](https://github.com/yangshuai5/Lewa-city-is-a-rogue/blob/master/Pictures/first.jpg)
 
 `无诚信不担当 没良心的企业，一旦规模变大，所造成的灾难是毁灭性的，请勿让无辜百姓去承担。`
